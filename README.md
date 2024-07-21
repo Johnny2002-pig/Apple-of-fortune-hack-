@@ -1,3 +1,3 @@
 # Apple-of-fortune-hack-
-Able to hack 1xbet apple of fortune 
+Able to hack 1xbet Apple of fortune 
 Playing wail wining 
